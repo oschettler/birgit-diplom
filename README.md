@@ -10,6 +10,10 @@ Birgit Schettler
 
 im WS 1994/95
 
+## Interviews
+
+Die Interviews erfolgten u.a. im USENET im Oktober 1994 in den Gruppen soc.women und alt.suicide.holiday. Hier ist ein [Link zur Anfrage](https://groups.google.com/d/msg/de.soc.misc/hKxvU5S_XvY/uo9fplDHd4UJ).
+
 ## Inhalt
 
 1. Einleitung
